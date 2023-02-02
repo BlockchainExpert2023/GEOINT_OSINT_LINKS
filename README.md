@@ -4,3 +4,5 @@ https://www.reddit.com/r/AgenceFrancePresse/comments/10fw78j/rt_afpfactuel_des_i
 
 https://www.youtube.com/playlist?list=PLAo5j5U8Vm-unb62vXAKaStKUQdA1qPKC
 
+World map of trends
+https://www.trendsmap.com/map
